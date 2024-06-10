@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Kiko4044
+- 👀 I’m interested in Programming
+- 🌱 I’m currently learning pyt
+- 📫 How to reach me: just dont reach me out
+- ⚡ Fun fact: Im playing to much Video games
